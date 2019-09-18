@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ruzweld.github.io/rsschool-cv/cv
